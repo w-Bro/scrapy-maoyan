@@ -1,1 +1,1 @@
-[点击看博客](https://blog.csdn.net/qq_37838568/article/details/86567101)
+[详细内容看博客](https://blog.csdn.net/qq_37838568/article/details/86567101)
